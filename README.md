@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kaz-666
+- 👀 I’m interested in UX designing 
+- 🌱 I’m currently learning to get around Java
+- 📫 How to reach me: lavanyapuri913@gmail.com 
